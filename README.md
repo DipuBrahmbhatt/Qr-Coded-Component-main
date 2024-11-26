@@ -1,0 +1,1 @@
+# Qr-Coded-Component-main
